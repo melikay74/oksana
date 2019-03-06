@@ -1,1 +1,1 @@
-# oksana
+# Freelance project, skinbyoksana.com
